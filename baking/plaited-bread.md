@@ -2,13 +2,13 @@
 
 ## Ingredients
 
-1 sachet instant yeast
-400 ml milk
-25 ml butter (or other shortening)
-3 t sugar
-1 t salt
-3.5 cups white bread flour
-sesame seeds (optional)
+- 1 sachet instant yeast
+- 400 ml milk
+- 25 ml butter (or other shortening)
+- 3 t sugar
+- 1 t salt
+- 3.5 cups white bread flour
+- sesame seeds (optional)
 
 ## Method
 
