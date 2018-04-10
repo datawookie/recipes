@@ -1,11 +1,11 @@
 ## Ingredients
 
-10 sausages
-1 T sunflower oil
-21g plain flour
-3/4 tsp salt
-3 eggs
-270ml semi-skimmed milk
+- 10 sausages
+- 1 T sunflower oil
+- 210g plain flour
+- 3/4 tsp salt
+- 3 eggs
+- 270ml semi-skimmed milk
 
 ## Method
 
