@@ -23,4 +23,4 @@
 9. Plait the three strips and press the ends together.
 10. Brush with egg yolk or melted butter.
 11. Sprinkle with sesame seeds.
-12. Bake at 200°C for 30 to 40 minutes.
+12. Bake at 200 °C for 30 to 40 minutes.

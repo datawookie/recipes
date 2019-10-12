@@ -22,6 +22,6 @@
 6. Beat down dough. Allow to rise again. [You can refrigerate at this stage.]
 7. Divide dough into 12 pieces. Shape the pieces into balls. Grease a bread tin and space the balls evenly. [You can refrigerate at this stage.]
 8. Make an egg wash by whisking the egg with the water. Brush the rolls with the egg wash.
-10. Bake at 180 C for 14-20 minutes.
+10. Bake at 180 °C for 14-20 minutes.
 
 Note: If you refrigerate then allow time for dough to come to room temperature.
