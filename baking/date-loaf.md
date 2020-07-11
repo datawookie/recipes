@@ -4,6 +4,8 @@ This is my mother's recipe.
 
 ## Ingredients
 
+### Loaf
+
 - 250 g dates (chopped)
 - 250 ml boiling water
 - 5 ml bicarbonate of soda
@@ -14,6 +16,8 @@ This is my mother's recipe.
 - 5 ml baking powder
 - pinch of salt
 - 50 g pecan nuts (chopped)
+
+### Topping
 
 - 80 ml brown sugar
 - 30 g butter
