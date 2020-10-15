@@ -17,7 +17,7 @@ This is my mother's recipe.
 1. Set oven to 180°C.
 2. Cream peanut butter and margarine.
 3. Add sugars and beat until fluffy.
-4. Add egg.
+4. Add egg and beat.
 5. Sift in flour and baking powder. Mix.
 6. Roll into balls and press down with a fork.
 7. Bake for 10 to 20 minutes.
