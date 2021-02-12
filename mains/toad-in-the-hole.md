@@ -5,7 +5,7 @@
 - pork sausages (6 to 12 is about right)
 - 1.5 cup flour
 - 1.5 cup milk
-- 1 salt
+- 1 t salt
 - ground black pepper
 - 3 eggs
 - 2 T butter (melted)
