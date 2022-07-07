@@ -5,20 +5,20 @@
 - 2 T butter
 - 3 T plain flour
 - 1 t	mustard
-- 500 ml milk
+- 550 ml milk
 - 300g mature Cheddar cheese, grated
 - garlic
 - black pepper
 - 500g dried macaroni
-- 100g bacon (preferably lardons)
-- 50g	Parmesan cheese, grated
+- 100g (or more!) bacon (preferably lardons)
+- 50g Parmesan cheese, grated
 - olive oil
 - salt
 
 ## Optional Ingredients
 
 - nutmeg
-- 60g	breadcrumbs
+- 60g breadcrumbs
 
 ## Method
 
@@ -33,5 +33,5 @@
 9. Boil the macaroni in a large pan of salted boiling water for about 10 minutes or until al dente, then drain well.
 10. Butter a large ovenproof dish. Preheat the oven to 180°C.
 11. Stir the cooked macaroni into the sauce and pour everything into the ovenproof dish.
-12. Mix the breadcrumbs with the Parmesan and scatter. Add a dash of oilve oil. Spread breadcrumbs over top of macaroni.
+12. Mix the breadcrumbs with the Parmesan (or remaining Cheddar) and a dash of olive oil. Spread breadcrumbs over top of macaroni.
 13. Bake for 25–30 minutes until golden and bubbling. Make sure that the breadcrumbs don't burn!
