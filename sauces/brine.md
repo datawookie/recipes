@@ -2,7 +2,7 @@
 
 Brines and marinades serve a similar purpose: they both make meat taste better. While a marinade adds flavour, a brine gives moisture.
 
-A brine would usually be used with lean meat, which due to the lack of fact, can dry out when cooked. Brines work well with pork, chicken and turkey.
+A brine would usually be used with lean meat, which due to the lack of fat, can dry out when cooked. Brines work well with pork, chicken and turkey.
 
 ## Ingredients
 
