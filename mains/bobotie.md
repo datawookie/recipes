@@ -29,3 +29,5 @@
 8. Beat eggs with remaining milk. Pour over mince.
 9. Garnish with bay leaves.
 10. Bake at 180°C for around 30 minutes.
+
+![](https://user-images.githubusercontent.com/6134409/203484340-76cdec63-b4e8-45e7-8f64-a2bd0216099e.jpg)
