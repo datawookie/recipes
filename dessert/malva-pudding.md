@@ -1,5 +1,7 @@
 # Malva Pudding
 
+The name "Malva Pudding" comes from the Afrikaans "malvalekker", which means "marshmallow".
+
 ## Ingredients
 
 - 1 cup flour
@@ -22,8 +24,8 @@ _Syrup_
 1. Beat together butter, sugar and egg.
 2. Add flour, bicabornate of soda, milk and apricot jam.
 3. Add vinegar.
-4. Bake at 180°C until brown and cooked through (around 30 minutes).
-5. warm up the syrup ingredients in a pot.
+4. Bake at 180°C until brown and cooked through (around 35 minutes).
+5. Warm up the syrup ingredients in a pot.
 6. Pour syrup slowly over cooked pudding.
 
 Service hot or cold with custard.
