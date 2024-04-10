@@ -1,5 +1,7 @@
 # Naan
 
+See https://www.instagram.com/reel/C37_MDYgBu2/ for an alternative approach.
+
 ## Ingredients
 
 - 1 t sugar
