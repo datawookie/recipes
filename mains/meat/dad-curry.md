@@ -9,7 +9,7 @@
 - 12 curry leaves
 - 0.5 t turmeric
 - 1 t jeera (cumin) powder
-- 1 t jeera masala
+- 1 t Garam or jeera masala
 - 3 bay leaves
 - 2 T ground ginger and garlic
 - cinnamon as required
@@ -26,7 +26,7 @@
 - 10 curry leaves
 - 0.25 t turmeric
 - 0.5 t jeera (cumin) powder
-- 1 t jeera masala
+- 1 t Garam or jeera masala
 - 1.5 T ground ginger and garlic
 - cinnamon as required
 - 1 T salt
