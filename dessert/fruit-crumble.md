@@ -9,14 +9,17 @@ Filling:
 - 2T sugar
 - cinnamon
 - nutmeg
+- (optional) vanilla or almond extract
+- (optional) citrus zest
 
 Crumble:
 
 - 175g flour
 - 110g sugar
 - 110g cold butter
+- (optional) cinnamon, allspice or ginger
 - (optional) rolled oats
-- (optional) ground almonds
+- (optional) ground/chopped almonds or other nuts
 - (optional) marzipan (broken into small pieces)
 
 ## Method
