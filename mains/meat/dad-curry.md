@@ -32,6 +32,10 @@
 - 1 T salt
 - 8 oz oil
 
+## Ingredients (Optional)
+
+- raisins or other dried fruit
+
 ## Method
 
 1. Heat oil, adding cinnamon sticks, then sliced onion rings.
@@ -39,5 +43,6 @@
 3. Then add ground ginger and garlic with mutton and braise for 15-20 mins. Stir slowly and well.
 4. When meat turns light brown, add sliced tomatoes and salt.
 5. Now you may add potatoes, peas, or any solid vegetables as required.
+6. Optionally add raisins or other dried fruit to give it a sweeter taste.
 
 ![](https://user-images.githubusercontent.com/6134409/203484396-12ad0837-e7ce-496e-a450-3ffd92af8f8c.jpg)
