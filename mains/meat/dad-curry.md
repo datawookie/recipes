@@ -1,5 +1,7 @@
 # Dad's Curries
 
+💡 Ideally use waxy potatoes. Soft cooking potatoes may suck up too much of the gravy, leaving a dry curry.
+
 ## Ingredients (Mutton)
 
 - 2.5 kg mutton
