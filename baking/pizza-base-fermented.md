@@ -25,3 +25,5 @@ https://www.instagram.com/p/DNA8Qa0s-b_/ (part 4))
 5. Leave on the shelf for a day, opening every few hours and pull edge of dough over the centre (stretch and fold).
 6. Put it into the friedge for another day, taking it out to do the same treatment every few hours.
 7. Ball the dough a few hours before making the pizza.
+
+When cooking the pizza crank your over temperature as high as it can go. Mine gets to 300 °C.
