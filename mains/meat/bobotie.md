@@ -9,7 +9,7 @@
 - 4 T apricot jam
 - 4 t tumeric powder
 - 6-8 t hot curry powder
-- salt
+- 2 t salt
 - 1 kg mince
 - 1 cup raisins
 - 6 slices bread
