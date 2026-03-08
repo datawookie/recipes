@@ -18,11 +18,11 @@ For the pork:
 For the glaze:
 
 - 1/2 cup sweet chilli sauce
-- 2 tbsp light soy sauce
-- 1 tbsp brown sugar
-- 1 tbsp rice vinegar
+- 2 T light soy sauce
+- 1 T brown sugar
+- 1 T rice vinegar
 - 2 cloves garlic, minced
-- 1 tsp ginger, grated
+- 1 t ginger, grated
 
 To serve:
 

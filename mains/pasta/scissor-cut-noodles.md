@@ -5,19 +5,19 @@
 Noodles:
 
 - 400g plain flour
-- 1/2 tsp salt
+- 1/2 t salt
 - 200ml water
 
 Sauce:
 
-- 1 tbsp neutral oil
-- 3 tbsp butter
-- 1 tsp chilli flakes
-- 2 tsp minced garlic
+- 1 T neutral oil
+- 3 T butter
+- 1 t chilli flakes
+- 2 t minced garlic
 - 1 red chilli, sliced
-- 1 tsp white sesame seeds
-- 3 tbsp light soy sauce
-- 2 tbsp chopped chives
+- 1 t white sesame seeds
+- 3 T light soy sauce
+- 2 T chopped chives
 - peanut butter ⭐
 
 ## Method

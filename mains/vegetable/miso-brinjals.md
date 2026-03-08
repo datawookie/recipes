@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 2 T tbsp miso paste
+- 2 T miso paste
 - 1 T tamari or soy sauce
 - 1 T honey
 - 1 T olive oil

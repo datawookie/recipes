@@ -15,9 +15,9 @@ https://www.instagram.com/p/C9piOaav4lZ/
 - 1 red onion
 - dill or parsley
 
-- 4-5 tbsp yoghurt
-- 2 tbsp mayo
-- 1 tbsp mustard
+- 4-5 T yoghurt
+- 2 T mayo
+- 1 T mustard
 - 1/2 lemon juice
 - salt, pepper
 

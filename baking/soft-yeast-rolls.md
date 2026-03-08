@@ -3,14 +3,14 @@
 ## Ingredients
 
 - 1 cup whole milk (lower fat milk can be substituted)
-- 1 package (0.25 oz or 2 1/2 tsp) active dry (not instant or rapid rise)
+- 1 package (0.25 oz or 2 1/2 t) active dry (not instant or rapid rise)
 - 1/4 cup granulated sugar
-- 1/3 cup (5 1/2 TBSP, 2.6oz, 73gr) unsalted butter, room temperature
+- 1/3 cup (5 1/2 T, 2.6oz, 73gr) unsalted butter, room temperature
 - 2 large eggs, room temperature
-- 1 1/4 tsp kosher salt
+- 1 1/4 t kosher salt
 - 4 cups (17oz, 476gr) all-purpose flour
 - 1 egg
-- 2 TBSP water
+- 2 T water
 
 ## Method
 
