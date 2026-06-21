@@ -13,7 +13,7 @@
 
 ## Method
 
-1. Heat oven to 170°C.
+1. Heat oven to 170 °C.
 2. Season short ribs with salt and allow to stand in fridge.
 3. Add generous splash of olive oil to bottom of deep roasting tray. Brown short ribs well on all sides.
 4. Remove meat. Add tomatoe puree and stir.
