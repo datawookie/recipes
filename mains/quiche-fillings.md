@@ -49,3 +49,30 @@
 7. Pour in the egg mixture.
 8. Bake at 170 °C fan / 190 °C conventional for about 25 minutes, until the filling is golden and completely set.
 9. Leave to cool for at least 10–20 minutes before slicing. Serve warm or at room temperature.
+
+## Tuna & Sweetcorn
+
+### Ingredients
+
+* 1 × tin tuna (drained)
+* 1 × tin sweetcorn (~285 g drained)
+* 1 small onion, finely chopped
+* 100 g mature cheddar, grated
+* 4 large eggs
+* 240 ml double cream
+* 60 ml whole milk
+* 1 t Dijon mustard
+* 1 t dried thyme, optional
+* 2 t fresh parsley, chopped
+* pinch salt
+* ground black pepper
+
+### Method
+
+1. Drain the sweetcorn thoroughly. Spread it over kitchen paper and pat it dry to remove as much moisture as possible.
+2. Sauté the onion according to the original recipe. Add the sweetcorn for the final 2–3 minutes and cook until the mixture looks dry and the corn begins to colour slightly.
+3. Whisk together the eggs, double cream, milk, Dijon mustard, salt and pepper.
+4. Distribute the tuna, onion and sweetcorn mixture, grated cheese and parsley evenly over the blind-baked pastry case.
+5. Pour over the egg mixture. Do not fill the pastry completely to the rim. Reserve any excess rather than allowing the filling to overflow.
+6. Bake at 180 °C (fan) for approximately 30–35 minutes, until the edges are firm and the centre has only a slight wobble.
+7. Leave the quiche to rest for at least 10 minutes before slicing.
