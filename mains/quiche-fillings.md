@@ -76,3 +76,27 @@
 5. Pour over the egg mixture. Do not fill the pastry completely to the rim. Reserve any excess rather than allowing the filling to overflow.
 6. Bake at 180 °C (fan) for approximately 30–35 minutes, until the edges are firm and the centre has only a slight wobble.
 7. Leave the quiche to rest for at least 10 minutes before slicing.
+
+## Leek & Cheese
+
+### Ingredients
+
+* 1 T olive oil
+* 2 leeks, thinly sliced
+* 2 celery sticks, thinly sliced
+* 4 eggs
+* 450 ml double cream
+* 150 g or more strong cheese
+* 2 T chopped parsley
+* salt
+* pepper
+
+### Method
+
+1. Heat the olive oil in a wide frying pan. Add the leeks and celery and cook over high heat for 2–3 minutes.
+2. Reduce the heat, cover and cook gently until the vegetables are very tender.
+4. Beat the eggs and cream together and season with salt and black pepper.
+5. Spread the leek and celery mixture over the prepared pastry case.
+6. Scatter over the Stilton and parsley, then pour in the egg and cream mixture.
+7. Bake at 180 °C (fan) for 35 minutes, until golden and just set.
+8. Leave to rest for 5–10 minutes before serving.
